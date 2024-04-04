@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @hari2013iscool
 - 👀 I’m interested in hacking
-- 🌱 I’m currently learning hacking
-- 💞️ I’m looking to collaborate on hacking
-- 📫 How to reach me hacking
+- 🌱 I’m currently learning HACKING
+- 💞️ I’m looking to collaborate on HACKING
+- 📫 How to reach me :HACKING
 - 😄 Pronouns: it
 - ⚡ Fun fact: because im terminator
 
